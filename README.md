@@ -1,0 +1,2 @@
+# repaso
+IC se pondera
